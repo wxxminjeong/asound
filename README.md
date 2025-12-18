@@ -1,6 +1,6 @@
 # 🎤 A SOUND | Hanbat National Univ. Hip-Hop Crew
 
-> **한밭대학교 힙합동아리 'A SOUND' 공식 홍보 웹사이트** > **Official Promotional Website for 'A SOUND', Hanbat National University Hip-Hop Crew**
+> **한밭대학교 힙합동아리 'A SOUND' 공식 홍보 웹사이트**  **Official Promotional Website for 'A SOUND', Hanbat National University Hip-Hop Crew**
 
 <br>
 
